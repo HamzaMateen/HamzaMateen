@@ -1,6 +1,6 @@
 Hi👋 ... **Hamza Mateen** here!
 
-I find my peace here, my motivation comes from the following sometimes:
+I find my peace here, my motivation comes from the following most of the times:
 
 > _"You can never understand everything. But, you should push yourself to understand the system"_  
 > &minus; Ryan Dahl
